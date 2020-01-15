@@ -42,3 +42,5 @@ _**Step 10.**_
 -Use the **4 wheel pieces** and place them **under** the studded green plate at the **very corners** of the plate.
 
 # Finished
+
+we can easily to follow the instructions if you add the pictures on :)
